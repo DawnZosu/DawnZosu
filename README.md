@@ -1,1 +1,1 @@
-my osu skins yes ok
+# my skins ok
