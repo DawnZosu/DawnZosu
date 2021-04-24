@@ -1,5 +1,8 @@
 # my skins ok
 
+# [DawnZ's RaJaceMiniku](https://drive.google.com/uc?export=download&id=1S4M42m-xEIi9S6q9rgZ-6G2mhOikJ0Ab)
+![](https://i.imgur.com/XWRivYZ.png)
+
 # [cvlox](https://drive.google.com/uc?export=download&id=1ivcCfEHxYYVgXApXGMeoHZGqPaJi58jI)
 ![](https://i.imgur.com/bmRLG2o.jpg)
 
