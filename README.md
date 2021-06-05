@@ -1,5 +1,8 @@
 # my skins ok
 
+# [DawnZ (Mugio3 Style)](https://drive.google.com/uc?export=download&id=1Rf5C7lfGlqljgDxdw-vvVYC05N3TGB00)
+![](https://i.imgur.com/2iQsfnP.png)
+
 # [DawnZ's RaJaceMiniku](https://drive.google.com/uc?export=download&id=1S4M42m-xEIi9S6q9rgZ-6G2mhOikJ0Ab)
 ![](https://i.imgur.com/XWRivYZ.png)
 
