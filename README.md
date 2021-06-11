@@ -1,5 +1,8 @@
 # my skins ok
 
+# [Jeff (Discord Exclusive)](https://cdn.discordapp.com/attachments/754624025455493120/852912577565818930/Jeff.osk)
+![](https://cdn.discordapp.com/attachments/754624025455493120/852912962909372436/screenshot051.png)
+
 # [DawnZ (Mugio3 Style)](https://drive.google.com/uc?export=download&id=1Rf5C7lfGlqljgDxdw-vvVYC05N3TGB00)
 ![](https://i.imgur.com/2iQsfnP.png)
 
