@@ -1,5 +1,8 @@
 # my skins ok
 
+# [- yes](https://drive.google.com/uc?export=download&id=1M6qr7VrH4TWdIRKTBuEB-3Kn8psnN8Wo)
+![](https://i.imgur.com/mSkIJ0O.png)
+
 # [Jeff (Discord Exclusive)](https://cdn.discordapp.com/attachments/754624025455493120/852912577565818930/Jeff.osk)
 ![](https://cdn.discordapp.com/attachments/754624025455493120/852912962909372436/screenshot051.png)
 
