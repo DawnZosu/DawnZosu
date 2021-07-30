@@ -1,5 +1,8 @@
 # my skins ok
 
+# [DawnZ 1.41](https://drive.google.com/uc?export=download&id=1Cs-tOWR_yokuUqo3fQoNqbdMcjyVPnlS)
+![](https://i.postimg.cc/wjRrQ2FM/screenshot142.png)
+
 # [- yes](https://drive.google.com/uc?export=download&id=1M6qr7VrH4TWdIRKTBuEB-3Kn8psnN8Wo)
 ![](https://i.imgur.com/mSkIJ0O.png)
 
