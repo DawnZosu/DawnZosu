@@ -1,5 +1,8 @@
 # my skins ok
 
+# [u suck at osu (b) (2020)](https://drive.google.com/uc?export=download&id=1l69YoXkn58o1RkOY4sDJ_etVBo37MedW)
+![](https://i.postimg.cc/1XfxhQ0c/screenshot143.png)
+
 # [DawnZ 1.41](https://drive.google.com/uc?export=download&id=1Cs-tOWR_yokuUqo3fQoNqbdMcjyVPnlS)
 ![](https://i.postimg.cc/wjRrQ2FM/screenshot142.png)
 
