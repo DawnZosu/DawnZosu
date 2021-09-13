@@ -1,5 +1,8 @@
 # my skins ok
 
+# [cherry blossom](https://drive.google.com/uc?export=download&id=1oQdWnow7_fgXo4qYdjj691tkPfacVAZG)
+![](https://i.imgur.com/orP6jDS.png)
+
 # [u suck at osu (b) (2020)](https://drive.google.com/uc?export=download&id=1l69YoXkn58o1RkOY4sDJ_etVBo37MedW)
 ![](https://i.postimg.cc/1XfxhQ0c/screenshot143.png)
 
