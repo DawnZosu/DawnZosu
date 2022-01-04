@@ -1,5 +1,8 @@
 # my skins ok
 
+# [I MISS THE RAGE](https://drive.google.com/uc?export=download&id=1pDXiAh0wmq2DzasNPkGnp_-5zuba2H9O)
+![](https://i.imgur.com/dPfDY84.png)
+
 # [cherry blossom](https://drive.google.com/uc?export=download&id=1oQdWnow7_fgXo4qYdjj691tkPfacVAZG)
 ![](https://i.imgur.com/orP6jDS.png)
 
