@@ -1,5 +1,8 @@
 # my skins ok
 
+# [- DawnZ -](https://drive.google.com/uc?export=download&id=1dPMisUl4KV_QXh8cKoAkQXKR2iI8_FHU)
+![](https://i.imgur.com/zLYf52g.jpg)
+
 # [I MISS THE RAGE](https://drive.google.com/uc?export=download&id=1pDXiAh0wmq2DzasNPkGnp_-5zuba2H9O)
 ![](https://i.imgur.com/dPfDY84.png)
 
